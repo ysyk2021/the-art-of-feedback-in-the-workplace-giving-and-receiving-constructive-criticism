@@ -12,7 +12,7 @@ Throughout the book, we'll also address some of the common challenges and obstac
 
 Whether you're a manager giving feedback to employees, or an employee receiving feedback from a supervisor, this book has something for you. By embracing the art of feedback, you can improve your communication skills, build stronger relationships with colleagues, and achieve your professional goals. So let's get started on the journey to mastering the art of feedback in the workplace.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
