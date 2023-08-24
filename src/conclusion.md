@@ -1,5 +1,4 @@
 
-
 Effective feedback is an essential component of a healthy and productive workplace. In this book, we have explored best practices for giving and receiving constructive criticism in the workplace. In this final chapter, we will recap some key strategies and offer final thoughts and advice.
 
 Recap of Key Strategies for Giving and Receiving Feedback
