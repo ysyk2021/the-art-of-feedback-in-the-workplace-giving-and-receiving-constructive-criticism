@@ -1,5 +1,3 @@
-Chapter 4: Giving Effective Feedback
-====================================
 
 Effective feedback is critical for personal and professional growth in the workplace. In this chapter, we will explore the elements of effective feedback, how to develop effective feedback strategies, providing feedback with tact and diplomacy, and encouraging growth and development through feedback.
 

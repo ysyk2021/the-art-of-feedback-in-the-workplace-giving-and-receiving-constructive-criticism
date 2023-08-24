@@ -1,5 +1,3 @@
-Managing Power Dynamics and Conflict
-==========================================================================================
 
 Feedback can be a challenging process, particularly when power dynamics or conflicts are present. In this chapter, we will explore strategies for overcoming these barriers to effective feedback and promoting constructive dialogue and growth.
 

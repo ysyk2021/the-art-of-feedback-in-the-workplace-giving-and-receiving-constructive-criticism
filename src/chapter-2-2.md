@@ -1,5 +1,3 @@
-Understanding the Science Behind Feedback
-========================================================================================
 
 Feedback is a critical component of the workplace, supporting ongoing growth and development of employees and organizations. Understanding the science behind feedback can help employees and managers alike improve their ability to give and receive constructive criticism.
 

@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-========================================================================================
 
 Developing a feedback mindset that emphasizes positive self-talk and visualization can help individuals and teams approach feedback with a growth-oriented mindset and promote personal and professional growth. In this chapter, we will explore strategies for developing a feedback mindset that includes utilizing positive self-talk and visualization.
 

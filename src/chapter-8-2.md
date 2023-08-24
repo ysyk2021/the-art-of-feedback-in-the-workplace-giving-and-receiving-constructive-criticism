@@ -1,5 +1,3 @@
-Reflection and Self-Evaluation
-=========================================================================================
 
 Effective feedback is about more than just giving and receiving criticism in the moment. It is also important to reflect on the process and evaluate the results over time. In this chapter, we will explore strategies for measuring the results of feedback and learning from experience through reflection and self-evaluation.
 

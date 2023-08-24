@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Barriers to Effective Feedback
-====================================================
 
 Effective feedback can be a powerful tool for improving performance, but it can also be challenging to give and receive. In this chapter, we will explore the common barriers that prevent effective feedback, and how to overcome them. We will cover how to address resistance and skepticism, dealing with negative attitudes and behavior, managing power dynamics and conflict, and handling difficult feedback situations.
 

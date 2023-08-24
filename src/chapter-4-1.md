@@ -1,5 +1,3 @@
-Understanding the Elements of Effective Feedback
-======================================================================================
 
 In order for feedback to be effective, it must be delivered in a thoughtful and constructive manner. In this chapter, we will explore the key elements of effective feedback and provide strategies for delivering feedback that is clear, specific, and actionable.
 

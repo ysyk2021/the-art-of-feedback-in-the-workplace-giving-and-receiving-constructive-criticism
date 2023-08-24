@@ -1,5 +1,3 @@
-Overview of Feedback in the Workplace
-====================================================================================
 
 Effective feedback is a critical component of successful workplaces. It allows employees to understand what they are doing well and where they can improve, and provides a foundation for ongoing growth and development.
 

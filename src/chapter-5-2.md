@@ -1,5 +1,3 @@
-Handling Feedback with Grace and Tact
-==================================================================================
 
 Receiving feedback can be challenging, particularly when the feedback is critical in nature. In this chapter, we will explore strategies for receiving constructive criticism and handling feedback with grace and tact.
 

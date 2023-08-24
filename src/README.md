@@ -1,4 +1,4 @@
-# Introduction
+
 
 In today's fast-paced and competitive work environment, giving and receiving feedback is essential for personal and professional growth. However, many people struggle with the art of giving and receiving constructive criticism effectively.
 

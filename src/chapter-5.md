@@ -1,5 +1,3 @@
-Chapter 5: Receiving Constructive Criticism
-===========================================
 
 Receiving constructive criticism can be challenging, but it is crucial for personal and professional growth. In this chapter, we will explore how to develop resilience and openness to feedback, handle feedback with grace and tact, seek clarification and ask questions, and learn from feedback and take action.
 

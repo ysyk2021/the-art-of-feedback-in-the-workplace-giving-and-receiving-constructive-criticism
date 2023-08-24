@@ -1,5 +1,3 @@
-Chapter 9: Continuous Improvement and Evaluation
-================================================
 
 In the workplace, constant evaluation and improvement are necessary to stay competitive and succeed. In this chapter, we will explore how reflection, continuous learning, and adaptation to change are critical components of continuous improvement.
 

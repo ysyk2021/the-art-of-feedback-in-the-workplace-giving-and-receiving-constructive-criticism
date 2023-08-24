@@ -1,5 +1,3 @@
-Handling Difficult Feedback Situations
-============================================================================================
 
 Providing and receiving feedback can be challenging, particularly in difficult or complex situations. In this chapter, we will explore strategies for overcoming barriers to effective feedback and handling difficult feedback situations with tact and diplomacy.
 

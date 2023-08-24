@@ -1,5 +1,3 @@
-Creating a Supportive Feedback Culture
-================================================================================
 
 Implementing feedback systems is essential to creating a supportive feedback culture in the workplace. In this chapter, we will explore strategies for implementing effective feedback systems that promote a culture of support and growth.
 

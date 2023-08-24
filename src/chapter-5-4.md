@@ -1,5 +1,3 @@
-Learning from Feedback and Taking Action
-=====================================================================================
 
 Receiving constructive criticism can be challenging, especially when the feedback is negative or critical. However, learning how to receive feedback effectively is key to personal and professional growth.
 

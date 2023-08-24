@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Feedback
-===========================================================================================
 
 Assessing your personal approach to feedback is essential for developing effective communication skills and building relationships in the workplace. By understanding your own tendencies and preferences when it comes to giving and receiving feedback, you can become a better communicator and collaborator.
 

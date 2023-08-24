@@ -1,5 +1,3 @@
-Chapter 3: Developing a Feedback Mindset
-========================================
 
 To master the art of feedback in the workplace, it's essential to cultivate a feedback mindset. A feedback mindset involves developing a positive attitude towards feedback, viewing feedback as an opportunity for growth and improvement and approaching feedback with a receptive and open-minded attitude.
 

@@ -1,5 +1,3 @@
-Seeking Clarification and Asking Questions
-=======================================================================================
 
 Receiving constructive criticism can sometimes be difficult, but learning how to seek clarification and ask questions can help individuals receive feedback more effectively. In this chapter, we will explore strategies for seeking clarification and asking questions when receiving constructive criticism.
 

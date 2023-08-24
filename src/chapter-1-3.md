@@ -1,5 +1,3 @@
-Benefits of Giving and Receiving Constructive Criticism
-================================================================================
 
 Giving and receiving constructive criticism can be a challenging yet essential part of effective communication in the workplace. In this chapter, we will explore the benefits of giving and receiving constructive criticism.
 

@@ -1,5 +1,3 @@
-Developing Effective Feedback Strategies
-==============================================================================
 
 Effective feedback is an essential component of personal and professional growth. In this chapter, we will explore strategies for developing effective feedback strategies that promote open dialogue and constructive criticism.
 

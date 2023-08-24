@@ -1,5 +1,3 @@
-Chapter 2: Defining Feedback in the Workplace
-=============================================
 
 Before mastering the art of feedback in the workplace, it's important to have a clear understanding of what feedback is and how it works. In this chapter, we will explore the definition of feedback, its purpose in the workplace, and the science behind effective feedback.
 

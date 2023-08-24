@@ -1,5 +1,3 @@
-Encouraging Growth and Development Through Feedback
-=========================================================================================
 
 Giving effective feedback is a key component of developing a growth-oriented workplace culture. In this chapter, we will explore strategies for giving effective feedback that encourages growth and development.
 

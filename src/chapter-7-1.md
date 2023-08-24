@@ -1,5 +1,3 @@
-Addressing Resistance and Skepticism
-==========================================================================================
 
 Resistance and skepticism can present significant barriers to effective feedback in the workplace. In this chapter, we will explore strategies for overcoming these barriers and promoting a culture of constructive feedback.
 

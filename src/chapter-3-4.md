@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Feedback
-============================================================================================
 
 Effective feedback requires more than just giving and receiving information. It involves developing a feedback mindset that is rooted in empathy and compassion. In this chapter, we will explore ways to develop a feedback mindset that fosters empathy and compassion through the feedback process.
 

@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-===============================================================================================
 
 Measuring the results of feedback and learning from experience are critical to foster a culture of continuous improvement in the workplace. In this chapter, we will explore how organizations can measure the effectiveness of feedback, learn from their experience, and adapt to changes in the workplace.
 

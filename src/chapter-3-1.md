@@ -1,5 +1,3 @@
-Techniques for Cultivating a Feedback Mindset
-=======================================================================================
 
 In order to become an effective giver and receiver of feedback, it is important to cultivate a feedback mindset -- an approach to communication that values feedback as a tool for growth and improvement. Here are some techniques for developing a feedback mindset:
 

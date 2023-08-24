@@ -1,5 +1,3 @@
-Managing Confidentiality and Privacy
-==============================================================================
 
 Implementing feedback systems is an essential component of promoting personal and professional growth and contributing to the success of the organization. In this chapter, we will explore strategies for managing confidentiality and privacy within feedback systems.
 

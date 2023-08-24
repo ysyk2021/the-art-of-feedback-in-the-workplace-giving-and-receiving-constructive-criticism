@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-======================================================================================
 
 Continuous improvement and evaluation are critical for organizations to remain competitive and adapt to changes in the workplace. In this chapter, we will explore how to foster a culture of continuous improvement and evaluation and adapt to changes in the workplace.
 

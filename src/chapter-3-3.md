@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-================================================================================
 
 Developing a feedback mindset that emphasizes setting realistic goals and objectives can help individuals and teams receive feedback more effectively and promote personal and professional growth. In this chapter, we will explore strategies for developing a feedback mindset that includes setting realistic goals and objectives.
 

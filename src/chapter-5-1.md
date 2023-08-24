@@ -1,5 +1,3 @@
-Developing Resilience and Openness to Feedback
-===========================================================================================
 
 Receiving constructive criticism can be challenging, but developing resilience and openness to feedback can help individuals receive feedback more effectively. In this chapter, we will explore strategies for developing resilience and openness to feedback when receiving constructive criticism.
 

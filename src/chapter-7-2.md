@@ -1,5 +1,3 @@
-Dealing with Negative Attitudes and Behavior
-==================================================================================================
 
 While feedback can be a powerful tool for growth and development, negative attitudes and behavior can create barriers to its effectiveness. In this chapter, we will explore common negative attitudes and behaviors that can hinder the feedback process and provide strategies for overcoming these barriers.
 

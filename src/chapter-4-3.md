@@ -1,5 +1,3 @@
-Providing Feedback with Tact and Diplomacy
-================================================================================
 
 Providing feedback that is effective and actionable can be challenging, particularly when the feedback is negative or critical. In this chapter, we will explore strategies for providing feedback with tact and diplomacy, promoting open and constructive dialogue.
 

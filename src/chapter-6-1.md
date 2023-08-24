@@ -1,5 +1,3 @@
-Developing Effective Feedback Processes and Systems
-=============================================================================================
 
 Effective feedback processes and systems are critical for creating a culture of continuous improvement in the workplace. By implementing clear and effective feedback systems, organizations can provide their employees with the tools and resources they need to thrive and grow.
 

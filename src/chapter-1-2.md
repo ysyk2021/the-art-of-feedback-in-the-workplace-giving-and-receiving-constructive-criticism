@@ -1,5 +1,3 @@
-Common Misconceptions About Feedback
-=============================================================
 
 Giving and receiving feedback can be an intimidating prospect for many people. In this chapter, we will explore some common misconceptions about feedback that can hinder individuals from embracing constructive criticism.
 
