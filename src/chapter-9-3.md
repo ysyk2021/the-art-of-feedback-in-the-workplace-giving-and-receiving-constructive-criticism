@@ -1,5 +1,4 @@
-Chapter: Adapting to Changes in the Workplace
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of adapting to changes in the workplace and effectively managing feedback during times of transition. The ability to embrace change, remain flexible, and adapt to new circumstances is crucial for personal and professional growth. By understanding the dynamics of change and adopting strategies for navigation, individuals can thrive amidst workplace transformations.
 

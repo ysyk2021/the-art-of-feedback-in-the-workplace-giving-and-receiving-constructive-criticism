@@ -1,5 +1,4 @@
-Chapter: Handling Feedback with Grace and Tact
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of handling feedback with grace and tact. Giving and receiving constructive criticism requires finesse and skill to maintain positive relationships, promote growth, and foster effective communication. By mastering the art of responding to feedback with grace and tact, individuals can navigate these conversations with professionalism and create an environment conducive to continuous improvement.
 

@@ -1,5 +1,4 @@
-Chapter: Continuous Learning and Improvement
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of continuous learning and improvement in the context of giving and receiving constructive criticism. The ability to embrace a growth mindset, seek opportunities for development, and actively apply feedback is crucial for personal and professional growth. By adopting a mindset of continuous learning and improvement, individuals can enhance their skills, knowledge, and overall effectiveness in the workplace.
 

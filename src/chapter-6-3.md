@@ -1,5 +1,4 @@
-Chapter: Encouraging Regular Feedback and Communication
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of encouraging regular feedback and communication in the workplace. Effective feedback is a powerful tool for growth, collaboration, and continuous improvement. By fostering a culture that values ongoing feedback and open communication, individuals and organizations can create an environment conducive to success and development.
 

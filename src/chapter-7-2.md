@@ -1,5 +1,4 @@
-Chapter: Dealing with Negative Attitudes and Behavior
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into strategies for effectively dealing with negative attitudes and behavior when giving and receiving constructive criticism. Negative attitudes and behavior can hinder the feedback process, create tension, and impede personal and professional growth. By understanding the underlying causes, addressing them directly, and implementing specific techniques, individuals can navigate these challenges and foster a more positive and productive feedback environment.
 

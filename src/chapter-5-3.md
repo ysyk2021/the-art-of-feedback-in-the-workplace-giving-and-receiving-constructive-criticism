@@ -1,5 +1,4 @@
-Chapter: Seeking Clarification and Asking Questions
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of seeking clarification and asking questions during the feedback process. Effective communication is essential for giving and receiving constructive criticism, and seeking clarification helps ensure that feedback is fully understood and actionable. By actively engaging in dialogue and asking relevant questions, individuals can enhance the quality of feedback exchanges and foster a deeper understanding.
 

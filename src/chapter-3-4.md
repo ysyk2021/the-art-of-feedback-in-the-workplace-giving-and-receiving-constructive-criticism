@@ -1,5 +1,4 @@
-Chapter: Developing Empathy and Compassion through Feedback
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing empathy and compassion when giving and receiving constructive criticism. Feedback exchanges can often evoke strong emotions, and cultivating empathy and compassion allows individuals to approach these conversations with understanding, kindness, and a genuine concern for the well-being of others. By fostering empathy and compassion, feedback can become a tool for connection, growth, and support.
 

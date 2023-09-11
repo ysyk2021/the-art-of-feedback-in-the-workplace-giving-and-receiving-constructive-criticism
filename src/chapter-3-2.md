@@ -1,5 +1,4 @@
-Chapter: Utilizing Positive Self-Talk and Visualization
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful techniques of positive self-talk and visualization in the context of giving and receiving constructive criticism. The way we talk to ourselves and visualize success can greatly impact our mindset, confidence, and ability to effectively process feedback. By harnessing the power of positive self-talk and visualization, individuals can cultivate a resilient and growth-oriented mindset that enhances their performance and overall well-being.
 

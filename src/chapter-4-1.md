@@ -1,5 +1,4 @@
-Chapter: Understanding the Elements of Effective Feedback
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the key elements of effective feedback in the workplace. Constructive criticism plays a vital role in fostering growth, improving performance, and enhancing communication. By understanding and incorporating these elements into feedback conversations, individuals can provide and receive feedback in a way that maximizes its impact and promotes positive change.
 

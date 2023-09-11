@@ -1,5 +1,4 @@
-Chapter: Addressing Resistance and Skepticism
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effectively addressing resistance and skepticism during the feedback process. Constructive criticism can sometimes be met with resistance or skepticism, hindering the potential for growth and improvement. By understanding the underlying reasons for resistance and employing specific techniques, individuals can navigate these challenges and create a more receptive environment for feedback.
 

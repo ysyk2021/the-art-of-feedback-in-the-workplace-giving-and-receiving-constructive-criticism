@@ -1,5 +1,4 @@
-Chapter: Setting Realistic Goals and Objectives
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of setting realistic goals and objectives when giving and receiving constructive criticism. Setting clear and achievable goals provides a foundation for effective feedback discussions, fosters motivation and growth, and enhances overall performance. By understanding the principles of goal setting and applying them to feedback exchanges, individuals can create a roadmap for success and maximize the impact of feedback.
 

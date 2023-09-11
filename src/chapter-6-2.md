@@ -1,5 +1,4 @@
-Chapter: Creating a Supportive Feedback Culture
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of creating a supportive feedback culture in the workplace. Constructive criticism is a valuable tool for professional growth and improvement. Establishing an environment that encourages and values feedback enhances communication, collaboration, and employee development. We will discuss strategies for fostering a supportive feedback culture that promotes open communication and constructive critique.
 

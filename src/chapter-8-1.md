@@ -1,5 +1,4 @@
-Chapter: Tracking Progress and Measuring Results
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of tracking progress and measuring results when giving and receiving constructive criticism in the workplace. Effective feedback requires a systematic approach to monitor performance, evaluate progress, and measure the outcomes of implemented changes. By implementing strategies for tracking progress and measuring results, individuals can ensure continuous improvement and make informed decisions based on evidence.
 

@@ -1,5 +1,4 @@
-Chapter: Developing Effective Feedback Strategies
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the development of effective feedback strategies in the workplace. Feedback is a powerful tool for growth and improvement when delivered in a thoughtful and constructive manner. By developing strategic approaches to giving and receiving feedback, individuals and organizations can optimize its impact and create an environment conducive to continuous learning and development.
 

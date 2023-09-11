@@ -1,5 +1,4 @@
-Chapter: Providing Feedback with Tact and Diplomacy
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of providing feedback with tact and diplomacy in the workplace. Constructive criticism is most effective when it is delivered in a manner that promotes understanding, maintains relationships, and encourages positive change. By mastering the art of providing feedback with tact and diplomacy, individuals can navigate sensitive conversations and foster a culture of open communication and continuous growth.
 

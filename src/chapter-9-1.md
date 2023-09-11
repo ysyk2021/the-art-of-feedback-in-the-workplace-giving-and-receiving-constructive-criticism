@@ -1,5 +1,4 @@
-Chapter: Techniques for Cultivating a Feedback Mindset
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques and strategies for cultivating a feedback mindset in the workplace. Developing a feedback mindset is crucial for both giving and receiving constructive criticism effectively. By adopting these techniques, individuals can foster a culture of continuous learning, growth, and improvement.
 

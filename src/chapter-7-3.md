@@ -1,5 +1,4 @@
-Chapter: Managing Power Dynamics and Conflict
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss strategies for effectively managing power dynamics and conflict when giving and receiving constructive criticism. Power imbalances and conflicts can greatly impact the feedback process, hindering open communication, trust, and growth. By understanding the dynamics at play, adopting conflict resolution techniques, and promoting a culture of mutual respect, individuals can navigate these challenges and foster a more harmonious and productive feedback environment.
 

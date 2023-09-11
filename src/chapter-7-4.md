@@ -1,5 +1,4 @@
-Chapter: Handling Difficult Feedback Situations
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the strategies for effectively handling difficult feedback situations in the workplace. Difficult feedback can be challenging to receive, process, and respond to constructively. By adopting a proactive and mindful approach, individuals can navigate these situations with grace, openness, and professionalism, ultimately fostering growth and improving relationships.
 

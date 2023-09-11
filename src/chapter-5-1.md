@@ -1,5 +1,4 @@
-Chapter: Developing Resilience and Openness to Feedback
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing resilience and openness to feedback when giving and receiving constructive criticism. Resilience allows individuals to bounce back from feedback setbacks and use them as opportunities for growth, while openness enables a receptive mindset that embraces feedback as a valuable tool for personal and professional development. By cultivating resilience and openness, individuals can navigate the challenges of feedback with grace, adaptability, and a willingness to learn.
 

@@ -1,5 +1,4 @@
-Chapter: Assessing Your Personal Approach to Feedback
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of self-reflection and self-awareness in assessing your personal approach to feedback. Understanding your own strengths, biases, and areas for growth can greatly enhance your ability to give and receive constructive criticism effectively. By assessing your personal approach to feedback, you can develop strategies to improve your feedback skills and contribute to a positive feedback culture within the workplace.
 

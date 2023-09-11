@@ -1,5 +1,4 @@
-Chapter: Managing Confidentiality and Privacy in Feedback
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of managing confidentiality and privacy in feedback processes within the workplace. Confidentiality and privacy are crucial elements in creating a safe and trustworthy environment for giving and receiving constructive criticism. By understanding how to effectively manage confidentiality and privacy, individuals can feel comfortable sharing their thoughts and concerns, fostering open communication and collaboration.
 

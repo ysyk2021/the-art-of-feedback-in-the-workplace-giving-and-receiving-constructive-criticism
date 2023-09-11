@@ -1,5 +1,4 @@
-Chapter: Learning from Feedback and Taking Action
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of learning from feedback and taking action to drive meaningful change and growth. Feedback, when used effectively, can serve as a catalyst for personal and professional development. By embracing feedback as an opportunity to learn, reflecting on it with intention, and taking purposeful action, individuals can maximize the value of feedback and enhance their performance in the workplace.
 
